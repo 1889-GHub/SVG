@@ -1,4 +1,4 @@
-
+![N](https://github.com/user-attachments/assets/00626943-3ba6-4045-b898-dd0c423a7912)
 
 SANAYI VE GÖÇ İLİŞKİLERİ SLAYT
 
